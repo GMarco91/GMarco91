@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GMarco91
-- 👀 I’m interested in Nurging Research
+- 👀 I’m interested in Nursing Research
 - 🌱 I’m currently learning Critical Area Nursing
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
